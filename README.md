@@ -9,4 +9,4 @@ You can click the Preview link to take a look at your changes.
 --->
 
 
-Salam men Salamow Shatlyk. Men Oz ishlerim size yarar diyip umyt etyan.sagbolun!
+Salam men Salamow Shatlyk.Oz ishlerim size yarar diyip umyt etyan.sagbolun!
